@@ -1,5 +1,3 @@
-awan92/README.md
-
 ## 👋 Hi, I’m Wisnu!
 
 **About Me 👀**
